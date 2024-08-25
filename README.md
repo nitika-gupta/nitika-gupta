@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nitika-gupta
-- Student at IIIT Allahabad
+- Alumin IIIT Allahabad
 - 📫 How to reach me ngnitika1@gmail.com
 
 <!---
